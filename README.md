@@ -9,6 +9,6 @@
 ― Victoria Schwab, Our Dark Duet
 
 "Man is condemned to be free, because once thrown in the world, he is responsible for everything he does. "
-- Jean-Paul Sartre
+― Jean-Paul Sartre
 
 "There is absolutely no worse death curse than the humdrum daily existence of the living dead. "
