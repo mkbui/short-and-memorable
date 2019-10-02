@@ -1,6 +1,6 @@
 # short-and-memorable
 
-"Life is meaningless, nothing you do matter. You are just one invidual among a species of primate with billions relatives living on a tiny rock in a middle of nowhere."
+"Life is meaningless, nothing you do matter. You are just one invidual among a species of primate with billions of relatives living on a tiny rock in a middle of nowhere."
 
 "A period of darkness is essential in order to expand personal awareness. Experiencing sadness and loss makes a person appreciative of life, more tenderhearted, and open to living life as an ecstatic journey of discovery." 
 ― Kilroy J. Oldster, Dead Toad Scrolls
